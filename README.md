@@ -1,1 +1,3 @@
-Ri1-03 Farxodov Nasim
+Farxodov Nasim
+Ri1-03 
+R21211055
